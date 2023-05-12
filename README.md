@@ -1,0 +1,2 @@
+# BlooketCheats
+Blooket
